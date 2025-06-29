@@ -1,1 +1,1 @@
-Understanding the orincipke and basis in forext trading
+Understanding the principle and basis in forext trading
